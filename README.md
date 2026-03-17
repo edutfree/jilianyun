@@ -1,10 +1,10 @@
 # jilianyun极连云官网地址
 
-最新地址：[hyperlink.mobi](https://ww01.hyperlink08.lat/#/?code=bOJdllc7)
+最新地址：[hyperlink.mobi](https://fanxb01.jlcvipaff.cc/#/?code=bOJdllc7)
 
 ## 极连云优惠码
 
-全套餐8折优惠，折扣码：[JLY888](https://ww01.hyperlink08.lat/#/?code=bOJdllc7)
+全套餐8折优惠，折扣码：[JLY888](https://fanxb01.jlcvipaff.cc/#/?code=bOJdllc7)
 
 商店套餐月付以上自带折扣，配合折扣码购买可以享受折上折，**3年付折上折享受4.8折**优惠……
 
@@ -41,7 +41,7 @@
             <td>-</td>
             <td>-</td>
             <td>¥96</td>
-            <td><a href="https://ww01.hyperlink08.lat/#/?code=bOJdllc7" rel="sponsored noreferrer" target="_blank">立即购买</a></td>
+            <td><a href="https://fanxb01.jlcvipaff.cc/#/?code=bOJdllc7" rel="sponsored noreferrer" target="_blank">立即购买</a></td>
         </tr>
         <tr>
             <td><strong>基础套餐</strong></td>
@@ -50,7 +50,7 @@
             <td>¥41.5</td>
             <td>¥80.5</td>
             <td>¥152.5</td>
-            <td><a href="https://ww01.hyperlink08.lat/#/?code=bOJdllc7" rel="sponsored noreferrer" target="_blank">立即购买</a></td>
+            <td><a href="https://fanxb01.jlcvipaff.cc/#/?code=bOJdllc7" rel="sponsored noreferrer" target="_blank">立即购买</a></td>
         </tr>
         <tr>
             <td><strong>进阶套餐</strong></td>
@@ -59,7 +59,7 @@
             <td>¥84.5</td>
             <td>¥161.5</td>
             <td>¥305.5</td>
-            <td><a href="https://ww01.hyperlink08.lat/#/?code=bOJdllc7" rel="sponsored noreferrer" target="_blank">立即购买</a></td>
+            <td><a href="https://fanxb01.jlcvipaff.cc/#/?code=bOJdllc7" rel="sponsored noreferrer" target="_blank">立即购买</a></td>
         </tr>
         <tr>
             <td><strong>旗舰套餐</strong></td>
@@ -68,7 +68,7 @@
             <td>¥185.5</td>
             <td>¥351.5</td>
             <td>¥663.5</td>
-            <td><a href="https://ww01.hyperlink08.lat/#/?code=bOJdllc7" rel="sponsored noreferrer" target="_blank">立即购买</a></td>
+            <td><a href="https://fanxb01.jlcvipaff.cc/#/?code=bOJdllc7" rel="sponsored noreferrer" target="_blank">立即购买</a></td>
         </tr>
         <tr>
             <td><strong>尊享套餐</strong></td>
@@ -77,7 +77,7 @@
             <td>¥342.5</td>
             <td>¥648.5</td>
             <td>¥1224.5</td>
-            <td><a href="https://ww01.hyperlink08.lat/#/?code=bOJdllc7" rel="sponsored noreferrer" target="_blank">立即购买</a></td>
+            <td><a href="https://fanxb01.jlcvipaff.cc/#/?code=bOJdllc7" rel="sponsored noreferrer" target="_blank">立即购买</a></td>
         </tr>
     </tbody>
 </table>
@@ -86,7 +86,7 @@
 
 还有一个**不限时套餐**：
 
-> [极连云 · 不限时套餐](https://ww01.hyperlink08.lat/#/?code=bOJdllc7)，¥399.00/一次性付款。一次性 1000G 流量包，无限时长，购买后不自动重置。
+> [极连云 · 不限时套餐](https://fanxb01.jlcvipaff.cc/#/?code=bOJdllc7)，¥399.00/一次性付款。一次性 1000G 流量包，无限时长，购买后不自动重置。
 > 
 > 全 IPLC 专线，最大提供 2.5Gbps 速率，原生 IP，解锁各大流媒体，解锁 ChatGPT、TikTok
 
